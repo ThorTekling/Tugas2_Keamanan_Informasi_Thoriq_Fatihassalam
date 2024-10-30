@@ -1,0 +1,1 @@
+# Tugas2_Keamanan_Informasi_Thoriq_Fatihassalam
